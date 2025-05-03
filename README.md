@@ -44,4 +44,4 @@ A: 我们严格遵守数据隐私协议，可签署保密协议（NDA）。
 联系我们
 现在就联系我们，获取专业RNA-Seq转录组数据分析服务报价！
 
-📩 0755@yycbiolabs.com | ☎️ 0755-23199041 | 🗓️ 免费咨询会议预约 | http://www.yycbiolabs.com
+📩 0755@yycbiolabs.com | ☎️ 0755-23199041 | 🗓️ 免费咨询会议预约 | [text](http://www.yycbiolabs.com/zh-CN/Solutions/RNASeq)
